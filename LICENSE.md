@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows instant Script: export-presets & video-stabilization offers the most advanced Vegas Pro for PC | Vegas Pro for Windows script, with
 
 
 
